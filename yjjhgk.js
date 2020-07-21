@@ -1,12 +1,1 @@
-asdsadasd adsa sdasđâsda
-ádasd
-sadasd
-sadsa
-dsadsa
-dsa
-sad
-á
-dá
-d
-á
-dá
+12345678912345678
